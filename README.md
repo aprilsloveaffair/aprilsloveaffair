@@ -1,4 +1,1 @@
-<img width="736" height="981" alt="forfriend" src="https://github.com/user-attachments/assets/9bbc0003-b6df-494b-9626-5445c5619a8e" />
-wip :p ⠀⠀⠀⠀⠀
-
-<!--
+<img width="450" height="556" alt="resized" src="https://github.com/user-attachments/assets/626fc28f-5e27-4520-b650-79f4bceb3a8c" />
